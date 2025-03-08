@@ -15,7 +15,7 @@
 
 ### 🎯 Interests  
 🐾 Animal protection & ecology  
-🧘‍♀️ Yoga & well-being  
+🧘‍♀️ Yoga & well-being   
 📊 Data analysis applied to healthcare  
 
 📫 **Contact**: [LinkedIn](https://www.linkedin.com/in/lauren-g-4b7371122/) 
